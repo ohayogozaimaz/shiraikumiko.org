@@ -1,0 +1,2 @@
+# shiraikumiko.org
+Shiraik
